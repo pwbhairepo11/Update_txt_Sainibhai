@@ -36,35 +36,3 @@ https://youtu.be/PYDtSTM6w44?si=noKPl7o4iU9SR_TO
 
 
 
-
-Saini bot:
-Free courses
-https://t.me/+MnxII-5_qqY5ZjE1
-
-Backup 
-https://t.me/+hz_70ZhH7DBmZTVl
-
-channel link
-https://t.me/+HGm5x31cuhZkMDE1
-https://t.me/+MdZ2996M2G43MWFl
-
-Group
- https://t.me/+-UUAslfhnugyZjZl
-
-All in one Batch 
-https://t.me/+GngX9aa8SHo5NmNl
-
-Batch in batch wise group
-https://t.me/+pksvjm_eoxZhZTNl
-
-Bot username
-@saini_contact_bot
-@saini_file_store_bot
-
-
-Repo 
-https://github.com/nikhilsainiop/saini-txt-direct
-https://github.com/cyberseller999/saini-txt-direct
-
-YouTube to mp3 & video downloader repo via cookies method 
-https://github.com/nikhilsainiop/YT-downloader-bot
